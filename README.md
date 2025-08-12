@@ -10,7 +10,7 @@ Industry revenue for Ublituximab is estimated to rise to $4.5 billion by 2035 fr
 
 ### Access the Report
 
-* **Detailed Analysis:** [[View Report](https://datastringconsulting.com/industry-analysis/ublituximab-market-research-report)](https://datastringconsulting.com)
+* **Detailed Analysis:** (https://datastringconsulting.com/industry-analysis/ublituximab-market-research-report)](https://datastringconsulting.com)
 * **Download Free Sample:** [Get Sample](https://datastringconsulting.com/downloadsample/ublituximab-market-research-report)
 
 ---
